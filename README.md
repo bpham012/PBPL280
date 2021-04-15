@@ -62,10 +62,12 @@ __Teaching Assistant__
     - University of California, Riverside 
     
 `January 2020 - March 2020`
+__Teaching Assistant__
 - Ethics, Professionalism, and Public Policy
     - University of California, Riverside
    
 `September 2019 - Decemember 2019`
+__Teaching Assistant__
 - Cultural Anthropology
     - University of California, Riverside
     
