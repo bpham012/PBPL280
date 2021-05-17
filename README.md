@@ -107,7 +107,7 @@ __Scout Master__
   
  `July 2020 - January 2021`
  __Community Partner__
- - Conduct a landscape analysis researching stakeholders, previous academic research, and looking into past and existing poilcy/investments in the homelessness area. 
+ - Conduct a landscape analysis researching stakeholders, previous academic research, and looking into past and existing policy/investments in the homelessness area. 
   - UCR's Center for Social Innovation
 
 
