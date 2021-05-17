@@ -83,6 +83,9 @@ __Data Management__
   - Minou P. Tran, M.D., F.A.C.E., INC
 
 ## Licenses & Certifications 
+`March 2021` __ArcGIS for Equity Training__
+- UCR Center for Social Innovation
+- 
 `September 2020` __MOOC Going Places with Spatial Analysis__
 - ESRI 
 
