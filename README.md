@@ -22,7 +22,7 @@ __Bachelor of Arts in Public Policy concentrating in Health Policy and Social Po
 - University of California, Riverside
 
 ## Contributions
-`April 2020`
+`April 2021`
 ACHF College Well-Being Project Report: Creating Well-Being Learning Environments at UCR
 
 ## Research Experience 
